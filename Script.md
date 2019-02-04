@@ -23,7 +23,7 @@ The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 The Zookeeper stopped George and gave him some flowers.
 
-George met the Unicorn King who granted him magic powers.
+George met the Unicorn King who granted him magic powers. He used his magic powers to create forests all around the world and save the earth.
 The end.
 
 ## Cast
